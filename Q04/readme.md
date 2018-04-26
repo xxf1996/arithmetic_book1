@@ -1,6 +1,6 @@
 ## 问题
 
-![question](http://o9dp8fd6w.bkt.clouddn.com/markdown/180426/h4aJg8Ie5h.png?imageslim)
+![question](p1.png)
 
 **问题**：
 
